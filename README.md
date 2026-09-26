@@ -1,4 +1,5 @@
 <p>my animal totem is chudjak</p>
+<p>neetccord forver 🥺</p>
 <P>i like zero day, marble hornets, creepypasta, lucky star, cry of fear, mlp, and yeah i guess thats all </P>
 <p>im really fond of bunnies, i love bunnies like a lot, i have a bunny and hes called boobies. </p>
 <p>i listen to fried by fluoride, negative xp, kmfdm, limp bizkit, goreshit etc </p>
