@@ -1,5 +1,6 @@
 
-<P>i like zero day, marble hornets, creepypasta, cry of fear, mlp, and yeah i guess thats all </P>
+<P>i like zero day, marble hornets, creepypasta, lucky star, cry of fear, mlp, and yeah i guess thats all </P>
+<p>i listen to fried by fluoride, negative xp, kmfdm, limp bizkit, goreshit etc </p>
 <P>have no dni just be nice funny and cool and consider that you can int me as long you dont start to try to make me believe your ideas about the end of the world if we dont all become therian or sm</P>
 <p>also last point, dont use tonetags or typing quirk with me if you dont wanna be joked on or just not being understood.</p>
 <div align="center">
@@ -9,7 +10,7 @@
 ![Views](https://komarev.com/ghpvc/?username=slaughteredvomitdolls&style=plastic&color=ff99cc)
 ![Followers](https://img.shields.io/github/followers/slaughteredvomitdolls?style=plastic&color=ff99cc)
 
-[![Spotify Playlist](https://img.shields.io/badge/Spotify-Playlist-1DB954?style=plastic&logo=spotify&logoColor=white)](https://open.spotify.com/playlist/3ZqcoaPhHZ5dCCEMOgZMEh)
+[![Spotify Playlist](https://img.shields.io/badge/Spotify-Playlist-1DB954?style=plastic&logo=spotify&logoColor=white)](https://open.spotify.com/playlist/3XYRcnWDIuf9M188nh8Ff4?si=ZAlh3Ve9SCOAzkTQTZ34Gw)
 
 
 
