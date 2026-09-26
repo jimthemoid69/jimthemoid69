@@ -1,4 +1,4 @@
-
+<p>my animal totem is chudjak</p>
 <P>i like zero day, marble hornets, creepypasta, lucky star, cry of fear, mlp, and yeah i guess thats all </P>
 <p>i listen to fried by fluoride, negative xp, kmfdm, limp bizkit, goreshit etc </p>
 <P>have no dni just be nice funny and cool and consider that you can int me as long you dont start to try to make me believe your ideas about the end of the world if we dont all become therian or sm</P>
