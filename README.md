@@ -9,8 +9,8 @@
 
 
 
-![Views](https://komarev.com/ghpvc/?username=slaughteredvomitdolls&style=plastic&color=ff99cc)
-![Followers](https://img.shields.io/github/followers/slaughteredvomitdolls?style=plastic&color=ff99cc)
+![Views](https://komarev.com/ghpvc/?username=jimthemoid69&style=plastic&color=ff99cc)
+![Followers](https://img.shields.io/github/followers/jimthemoid69?style=plastic&color=ff99cc)
 
 [![Spotify Playlist](https://img.shields.io/badge/Spotify-Playlist-1DB954?style=plastic&logo=spotify&logoColor=white)](https://open.spotify.com/playlist/3XYRcnWDIuf9M188nh8Ff4?si=ZAlh3Ve9SCOAzkTQTZ34Gw)
 
